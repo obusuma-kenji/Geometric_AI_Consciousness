@@ -1,0 +1,1 @@
+# Geometric_AI_Consciousness
